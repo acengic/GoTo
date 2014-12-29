@@ -1,0 +1,11 @@
+sk;lk;lk;lkds;lkc;slk;SDlkac;lkc
+a;slkc
+as;dlck
+as;ck
+asckla
+sdcl;kas
+d;lcka
+sdck
+asdcka
+sdck
+ascl
